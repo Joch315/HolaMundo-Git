@@ -28,4 +28,4 @@ Area comercial.
 Se podria empezar con un Perfil de Negocio de Google el cual nos brinda recursos de ubicacion, difucion
 y reseñas por parte de nuestros consumidores lo cual puede aprovechar el encargado del marketing
 tambien el de marketing podria usar el medio de tik-tok debido a su gran escabilidad para promocionar la marca 
-en donde muestre como funcione el colectivo.
+en donde muestra como funciona el colectivo.
